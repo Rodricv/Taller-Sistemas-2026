@@ -1,1 +1,0 @@
-# Taller-Sistemas-2026
